@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @hd.ph7 or @hd_ph7
+- 👀 I’m interested in python, java, html.
+- 🌱 I’m currently learning html.
+- 😄 Pronouns: she/him
+- ⚡ Fun fact: i'm femboy.
